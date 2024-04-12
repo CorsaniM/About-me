@@ -1,1 +1,1 @@
-# About-me
+I am Maximo, I am 21 years old and I am a law student at the University of Buenos Aires. I dedicate myself to programming in a small company and I really like doing it. I also play the guitar and keyboard and compose my own songs. 😁😁😁
